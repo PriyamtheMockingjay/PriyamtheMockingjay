@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @PriyamtheMockingjay
+- 👀 I’m interested in coding, drawing, writing stories and reading story books
+- 📖 I’m currently reading Maze Runner : The Scorch Trials
+- 🎵 My favourite song is : Sunflower by Post Malone,Swaee Lee
+- 📫 How to reach me : Mail me at chakrabartipriyo124@gmail.com
